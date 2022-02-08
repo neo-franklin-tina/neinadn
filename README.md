@@ -1,4 +1,6 @@
-### neinadn
+### #neinadn
+
+https://noteveryideaneedsadomainname.com
 
 This website is a not to my future self.
 
